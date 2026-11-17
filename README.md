@@ -1,4 +1,9 @@
-
+## Como participar
+Cada pessoa pode contribuir com pequenas atitudes:
+- Separar corretamente o lixo.
+- Reutilizar materiais sempre que possível.
+- Economizar água e energia.
+- Evitar o desperdício.
 # Pequenas Atitudes, Grandes Transformações
 
 ## Sobre o projeto
